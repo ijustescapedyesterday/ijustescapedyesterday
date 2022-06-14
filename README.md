@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ijustescapedyesterday
-- 👀 I’m interested in ur mom
+- 👀 I’m interested in :DD
 - 🌱 I’m currently learning fluid dynamics+  P versus NP problem+ much much more
-- 💞️ I’m looking to collaborate on ur mom
+- 💞️ Don't collaborate with me I am a lone star please leave me alone xd.
 - 📫 How to reach me eat a dog
 
 <!---
